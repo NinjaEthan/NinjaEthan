@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NinjaEthan
+- 👀 I’m interested in: creating my own games and websites
+- 🌱 I’m currently learning: C++
+- 💞️ I’m looking to collaborate on: nothing right now
+- 📫 How to reach me: diamondgolem122@gmail.com or DiamondGolem#2081 on discord
